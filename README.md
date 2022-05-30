@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Royal shayn music bot
+@shayn_rajput
+Onwer_ @shayn_rajput
